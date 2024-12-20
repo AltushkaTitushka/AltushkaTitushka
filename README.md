@@ -1,7 +1,7 @@
 - 👋 Hi, I’m AltushkaTitushka
 - 👀 I’m interested in ...rfewvewrv
 - 🌱 I’m currently learning
-- 💞️ I’m looking to collaborate on rhnfrsdfs
+- 💞️ I’m looking to collaborate on rgntrfewfergvedtr
 - 📫 How to reach me ..
 - 😄 Pronouns: ..ejugww
 - ⚡ Fun fact: ..
