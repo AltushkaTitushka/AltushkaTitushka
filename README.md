@@ -1,5 +1,5 @@
 - 👋 Hi, I’m AltushkaTitushka
-- 👀 I’m interested in ...rbijto[jsth
+- 👀 I’m interested in ...mbvcnuyrdtyh
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate trjntyjntyj
 - 📫 How to reach me ..
